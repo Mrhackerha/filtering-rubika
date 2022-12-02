@@ -3,3 +3,6 @@
 My number: 09376785910 
 My channel: hazrat_rubika 
 Id Instagram: Jokerking_jm 
+
+https://www.aparat.com/v/WEXZ6 
+اینم آموزش فیلترینگ mhr متاسفانه فیلم گرفته شده با گوشی خواهرم بود و خب باعث حاشیه هایی شد 
